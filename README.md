@@ -1,4 +1,7 @@
 # News
 
-https://github.com/DaewiChan/News/assets/32207511/88f24cc7-27cb-444a-aaef-969ae450256b
+
+
+https://github.com/DaewiChan/News/assets/32207511/943f49c3-68b4-449a-9220-a2eaf9ee6663
+
 
